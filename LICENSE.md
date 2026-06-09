@@ -1,4 +1,4 @@
-
+jujutsu shenanigans Script advanced is the best jujutsu shenanigans Script, featuring anti-ban and auto-upgrade. Safe and powerful for all your needs.
 
 
 
